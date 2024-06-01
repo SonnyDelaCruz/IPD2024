@@ -6,3 +6,4 @@ Gabriel Sonny De la Cruz Aguilar
 Alberto Luis Gil Sixi♠♣
 Paola Abal Carhuancho
 Elizabeth Ashley Bayona Vera
+Jeanpiere Burga
